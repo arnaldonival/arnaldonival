@@ -1,1 +1,1 @@
-Hardworking in Computer Science solutions!
+Hardworking in Computer Science Solutions!
